@@ -27,3 +27,5 @@ If you're spending hours each week manually transferring data between apps or if
 Want the full breakdown, comparison, and verdict? 
 
 Read the complete article here: [Pabbly Connect Lifetime Deal](https://wpdealsexpert.com/pabbly-connect-lifetime-deal/)
+
+or visit direct deal page: [Pabbly Connect Lifetime Deal](https://wpdealsexpert.com/go/pabbly-connect-onetime/)
